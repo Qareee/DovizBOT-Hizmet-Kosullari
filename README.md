@@ -1,0 +1,1 @@
+# DovizBOT-Hizmet-Kosullari
